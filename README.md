@@ -1,1 +1,0 @@
-# Mehal-Gallery
